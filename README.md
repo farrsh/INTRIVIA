@@ -10,3 +10,6 @@ Overall sangat insightfull dan memberi pengetahuan baru mengenai departemen. Sel
 
 ## Kesan Pesan Cluster 5 Sejauh Ini 
 Selama menjalani kegiatan bersama, cluster 5 bisa saling berkompromi, menghargai pendapat satu sama lain, dan menjaga kekompakan dalam kelompok.
+
+## Harapan Kuliah
+Harapan saya, saya bisa menjadi pribadi yang berkembang dan lebih baik dari sekarang. Saya tidak ingin menyian-nyiakan kesempatan yang ada dan terus mencoba. Semoga saya bisa menuntut ilmu sebanyak-banyaknya, serta mengembangkan hardskill maupun softskill saya untuk bekal menghadapi dunia kerja di masa yang akan mendatang.
